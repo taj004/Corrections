@@ -1,3 +1,3 @@
 # Corrections
 
-Correction to typos and making text somewhat more precise in the works (e.g. articles) I've done
+Corrections to mistakes, like typos, and comments to texts to make the texts more precise in my published works.
