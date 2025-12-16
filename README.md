@@ -1,3 +1,3 @@
-# Corrections
 
-Corrections to mistakes, like typos, and comments to texts to make the texts more precise in my published works.
+
+Corrections to bigger and smaller mistakes in my published works.
